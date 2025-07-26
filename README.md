@@ -1,1 +1,1 @@
-# ixtisas-se-imi
+# ixtisas-seçimi
